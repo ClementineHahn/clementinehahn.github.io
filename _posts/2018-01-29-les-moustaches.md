@@ -7,7 +7,7 @@ J’essaie d’écrire des trucs donc *M.David Bruant* ici présent m’aide à 
 ## Ceci est la suite de l’intro 
 
 
-Les **moustaches** qui permettent de savoir que *“ceci est à interpréter”*
+Les { **moustaches** } qui permettent de savoir que *“ceci est à interpréter”*
 Ce serait pratique dans la *vraie vie*
 Je ne sais/vois pas les moustaches
 
