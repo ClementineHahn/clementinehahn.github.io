@@ -1,4 +1,6 @@
-# Essai Pipou 
+---
+title: Les moustaches
+---
 
 ## Ceci est une intro de l’essai pipou
 
