@@ -11,5 +11,6 @@ Les **moustaches** qui permettent de savoir que “ceci est à interpréter”
 Ce serait pratique dans la *vraie vie*
 Je ne sais/vois pas les moustaches
 
-https://www.youtube.com/watch?v=6JMCgVFYAqQ
+
+[Vive la moustache](https://www.youtube.com/watch?v=6JMCgVFYAqQ)
 
