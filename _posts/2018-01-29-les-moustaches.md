@@ -8,7 +8,7 @@ J’essaie d’écrire des trucs donc *M.David Bruant* ici présent m’aide à 
 
 
 Les { **moustaches** } qui permettent de savoir que *“ceci est à interpréter”*
-Ce serait pratique dans la *vraie vie*
+Ce serait pratique dans la vraie vie
 Je ne sais/vois pas les moustaches
 
 **Vive la moustache**
