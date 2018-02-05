@@ -6,6 +6,8 @@ title: Tu fais quoi dans la vie ?
 A l'époque je suis au chômage depuis 6 mois. J'avais remis à jour mon CV et passé des entretiens d'embauches. Pas mal d'absurdité. Quelques rencontres. Beaucoup de questions. J'essayais d'en faire quelque chose quand FACES B m'a proposé d'écrire. Un numéro spécial sur le temps, l'occasion de parler de l'introspection que je menais sur le temps de travail. Chouette défi. Ça a donné l'article suivant. 
 
 
+------------------------------------------------------------------------------------------------------------------------
+
 
 **Tu connais ce moment**, on se rencontre, on se retrouve et tu vas me poser cette question : *«Tu fais quoi dans la vie?»* Tu sais quoi répondre toi ? Moi, plus vraiment. Il y a quelque mois je pouvais encore répondre «chef de projet en e-santé». C'était un beau travail. Mais est-ce que ça aidait à comprendre ce que je faisais dans la vie ? Non, ça permettait de savoir à quoi je dévouais quarante heures par semaine. Fais le calcul, il reste 128 heures dont on ne parle pas. Aujourd’hui je ne suis plus «active», je suis au chômage. Spoiler alert: je n'ai jamais autant travaillé. J'ai retrouvé la liberté de disposer de mon temps. Je l'explore. Le temps est notre seule vraie richesse même si personne ne sait combien il lui reste à dépenser. Alors je peux simplement t'expliquer à qui et à quoi je donne ce temps. Des idées, des projets pour avancer. Mais pour l'instant ce n'est pas ce que tu appelles un travail. Pour l'instant ça ne m'aide pas à payer mon loyer. C'est juste ce que je fais dans la vie.
 
