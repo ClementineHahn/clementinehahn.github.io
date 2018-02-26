@@ -10,7 +10,8 @@
 
 - Timon : « *Toi à part le gaz y'a pas grand-chose qui t'intéresse.* » 
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/IyJax_5c-aI?start=24" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/IyJax_5c-aI?rel=0&amp;start=24" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 
 **A chacun son ciel**
