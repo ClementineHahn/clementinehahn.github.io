@@ -10,6 +10,7 @@
 
 - Timon : « *Toi à part le gaz y'a pas grand-chose qui t'intéresse.* » 
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/IyJax_5c-aI?start=24" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 **A chacun son ciel**
 Qui n’a pas déjà levé les yeux aux ciels à la recherche de la Grande Ourse ou de Cassiopée ? Lorsque les conditions sont réunies, on pointe fièrement du doigt… une casserole ou un W. Nous nous attachons à des constellations dont les contours sont flous pour beaucoup d’entre nous. Mais pourquoi ? Parce que nommer le ciel, c’est se l’approprier. On y trace des repères, comme autant de prétextes pour lever les yeux à nouveau et contempler notre œuvre. Dans cette multitude de représentations, d'une culture à l'autre, d'un hémisphère à l’autre, est-il possible de regarder le même ciel ?
