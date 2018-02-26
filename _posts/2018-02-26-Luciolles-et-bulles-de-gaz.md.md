@@ -1,14 +1,14 @@
-- Pumbaa : « *Tu t'es déjà demandé ce que c'était que ces petits points brillants là-haut ?* » 
+Pumbaa : « *Tu t'es déjà demandé ce que c'était que ces petits points brillants là-haut ?* » 
 
-- Timon : « *C'est pas la peine que je me l'demande : Je l'sais !* » 
+Timon : « *C'est pas la peine que je me l'demande : Je l'sais !* » 
 
-- Pumbaa : « *Oh. Et c'est quoi ?* » 
+Pumbaa : « *Oh. Et c'est quoi ?* » 
 
-- Timon : « *Des lucioles Pumba. Un genre de vers qui reste collé sur cette espèce de machin bleu marine.* »
+Timon : « *Des lucioles Pumba. Un genre de vers qui reste collé sur cette espèce de machin bleu marine.* »
 
-- Pumbaa : « *Oh. Tiens. Moi j'pensais que c'était des bulles de gaz qui brûlaient à des billions d'kilomètres de nous !* »
+Pumbaa : « *Oh. Tiens. Moi j'pensais que c'était des bulles de gaz qui brûlaient à des billions d'kilomètres de nous !* »
 
-- Timon : « *Toi à part le gaz y'a pas grand-chose qui t'intéresse.* » 
+Timon : « *Toi à part le gaz y'a pas grand-chose qui t'intéresse.* » 
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/IyJax_5c-aI?rel=0&amp;start=24" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
