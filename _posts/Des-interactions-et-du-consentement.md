@@ -6,7 +6,7 @@ title: Des interactions et du consentement
 
 Surement parce que j’ai l’espoir plutôt ridicule de la rendre efficiente. On est des humains complètement dérisoires, on passe notre temps à faire plein d’erreurs, on ne comprend pas grand chose à rien et on pense qu’on se comprends. Moi ça me fascine. 
 
-On parle beaucoup de consentement ces temps-ci. Est-ce que c’est l’absence d‘un « non » ou l’affirmation d’un « oui » ? C’est un enjeu de communication violemment important. Parce que ça change beaucoup de choses. Avoir une compréhension commune de ce concept n’est pas inné. C’est une construction culturelle et sociale. C’est faillible. C’est pour ça que c’est intéressant d’en parler, pour apprendre. 
+On parle beaucoup de consentement ces temps-ci. Est-ce l’absence d‘un « non » ou l’affirmation d’un « oui » ? C’est un enjeu de communication violemment important. Parce que ça change beaucoup de choses. Avoir une compréhension commune de ce concept n’est pas inné. C’est une construction culturelle et sociale. C’est faillible. C’est pour ça que c’est intéressant d’en parler, pour apprendre. 
 
 J’ai réalisé que dans mon travail j’explore beaucoup cette question du consentement éclairé, du sens d’un projet. Arriver à verbaliser un oui enthousiaste d’une équipe, être sure que tout le monde avance dans la même direction en connaissance de cause, parce que tout le monde a compris, tout le monde y a dit oui.
 
