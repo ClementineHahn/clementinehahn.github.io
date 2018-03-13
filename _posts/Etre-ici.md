@@ -1,11 +1,11 @@
-Il y a un an j'étais là, à contempler ça.
+Un jour j'étais là, à contempler ça.
 
 
 
 
 
 
-Il y a un an j'ai pris en pleine face quelque chose que j'avais au fond de mon ventre, au fond de ma tête.
+Un jour j'ai pris en pleine face quelque chose que j'avais au fond de mon ventre, au fond de ma tête.
 
 **On est rien, mais on est là.**
 
@@ -15,4 +15,4 @@ En fait on est rien, on est là et on flotte.
 
 Vous ne le savez peut-être pas, mais on y est tous. Parfois sans que nos regards se croisent. On n'observe pas les même espaces. Pourtant elle est belle notre maison, le quartier est magnifique mais on connait pas bien nos voisins, ils sont trop loin.
 
-il y a un an j'ai compris. J'étais là. Aujourd'hui j'y suis encore.
+Un jour j'ai compris. J'étais là. Aujourd'hui j'y suis encore.
