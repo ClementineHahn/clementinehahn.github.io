@@ -32,7 +32,7 @@ Il en existe beaucoup d’autres.  
 Pour aller au bout de l’exemple : selon mon référentiel je présuppose que ma volonté et mes choix communiqués sont seulement ceux que j’ai explicité et qu’il est impossible d’attribuer à une attitude que je n’ai pas maitrisée la valeur d’un mot que je n’aurais pas dit. Mais quelqu’un qui aurait un autre référentiel, celui de la mise en scène de soi par exemple, pourrait me prêter des volontés implicites ou des choix non-dits que je n’aurais pourtant pas formulé.  
 Cette faillite de la communication peut mener à de joyeux quiproquos, de réels échanges voir à de beaux moments. Mais ça peut aussi mener à des situations moins drôles, parfois à de la violence.
 
-Et c’est là qu’on retrouve nos titres de journaux. Qu’on découvre qu’il existe une marge de progrès. C’est là qu’il est important d’écouter l’autre, ses manifestations. C’est là qu’il faudrait entendre les mots. Et qu’un « Je ne veux pas aller plus loin » ne sera jamais une invitation à franchir une ligne, quel que soit le contexte.
+Et c’est là qu’on retrouve nos titres de journaux. Qu’on découvre qu’il existe une marge de progrès. C’est là qu’il est important d’écouter l’autre, ses manifestations. C’est là qu’il faudrait entendre les mots. Et qu’un « non » ne devrait jamais être interpreté, qu'il ne peut pas être une invitation à franchir une ligne, quel que soit le contexte.
 
 Je me suis retrouvée parfois dans ces cas d’échec. Face à une impasse du langage, forcée de constater l’incompréhension, se regarder subir. Ma seule solution jusqu’à présent : la fuite. L’ailleurs. La fin unilatérale de l’interaction. C’est toujours une épreuve. Et c’est comme ça qu’on apprends. 
 
