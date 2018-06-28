@@ -3,7 +3,7 @@ layout: default
 title: "Des textes"
 ---
 
-<ul
+<ul>
   {% for post in site.posts %}
 
     {% unless post.next %}
