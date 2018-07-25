@@ -1,21 +1,21 @@
 
 **WAQ // Jour 1 // Le décompte**
 
-*08h. Arrivée*. Entendre des bénévoles discuter. « 1200 personnes attendues ». 1200 f*cking personnes par jour, pendant 3 jours. Un vestiaire, des cocardes. Les uns derrières les autres, foule nécessairement dense, confuse et bruyante. Le ton est donné. Brace Yourself
+08h. Arrivée. Entendre des bénévoles discuter. « 1200 personnes attendues ». 1200 f*cking personnes par jour, pendant 3 jours. Un vestiaire, des cocardes. Les uns derrières les autres, foule nécessairement dense, confuse et bruyante. Le ton est donné. Brace Yourself
 
-*09h Pendant la conférence d’introduction*, profiter de la relative accalmie pour arpenter les couloirs, découvrir les lieux et repérer les espaces de tranquillité. 
+09h Pendant la conférence d’introduction, profiter de la relative accalmie pour arpenter les couloirs, découvrir les lieux et repérer les espaces de tranquillité. 
 
-*10h.“Sens comme stratégie marketing” par Denis Martel*
+10h.“Sens comme stratégie marketing” par Denis Martel
 J’ai envie de dire oui à tout. Mais en même temps j’apprends rien. Ça sonne à mes oreilles comme une introduction au bon sens. J’ai envie de renommer la conf : « Quitter l’ancien monde 101. » 
 
-*10h30 je quitte ma première conférence.*
+10h30 je quitte ma première conférence.
 
-*11h « Foundational Psychology Experiments (And Why You Should Know Them) » par Michele Kiss*
+11h « Foundational Psychology Experiments (And Why You Should Know Them) » par Michele Kiss
 Okay, je vais enfin de l’avouer, ce que j’aime faire en fait c’est de la psycho. Les biais des gens, le pourquoi des processus de réflexion, le comment se prend une décision : ça m’intéresse. 
 Rien de révolutionnant mais quelques rappels qui font du bien :
 ⇒ «  We are biased, we are flawed ». Best defense ? « Be aware of it ». 
 
-*12h. Pause déjeuner. Beaucoup de monde , beaucoup de bruit. Regarder en bas.* 
+12h. Pause déjeuner. Beaucoup de monde , beaucoup de bruit. Regarder en bas. 
 Il y a ceux qui montent par l’escalier et ceux qui montent par l’Escalator. 
 9 par l’Escalator, 1 par l’escalier ; 
 22 par l’Escalator, 2 par l’escalier ;
@@ -39,8 +39,8 @@ Laisser trainer mes oreilles :
 
 S’étouffer en silence. 
 
-La valeur de ton travail, tu penses sérieusement qu’elle est dans le nombre de lignes que tu factures ? Que c’est une production qui se mesure au kilomètre ?  Naïvement je pensais qu’il était plutôt utile de tendre vers le moins de ligne, viser l’efficacité, la lisibilité. 
-Mon erreur, j’ai projeté mes propres croyances. J’ai présupposé que tu avais passé du temps à réfléchir à la valeur de ton travail. Donc en fait non, le problème n’est pas que tu crois que la valeur de ton travail réside dans le nombre de lignes.  Je crains que le problème soit ailleurs. Quand je t'entends parler de valeur, ej ne t'entends pas parler de pour quoi ou pour quoi tu fais tout ça. Y-as-tu seulement réfléchi ? 
+La valeur de ton travail, tu penses sérieusement qu’elle est dans le nombre de lignes que tu factures ? Que c’est une production qui se mesure au kilomètre ? Naïvement je pensais qu’il était plutôt utile de tendre vers le moins de ligne, viser l’efficacité, la lisibilité. 
+Mon erreur, j’ai projeté mes propres croyances. J’ai présupposé que tu avais passé du temps à réfléchir à la valeur de ton travail. Donc en fait non, le problème n’est pas que tu crois que la valeur de ton travail réside dans le nombre de lignes.  Je crains que le problème soit ailleurs. Quand je t'entends parler de valeur, je ne t'entends pas parler de pour quoi ou pour quoi tu fais tout ça. Y-as-tu seulement réfléchi ? 
 
 Un café. Retour aux conférences. 
 
