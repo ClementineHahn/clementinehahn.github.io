@@ -1,5 +1,3 @@
-Web à Québec 2018, vu et entendu
--
 
 **WAQ // Jour 1 // Le décompte**
 
