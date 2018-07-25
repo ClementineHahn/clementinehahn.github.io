@@ -1,7 +1,7 @@
 Web à Québec 2018, vu et entendu
 -
 
-WAQ // Jour 1 // Le décompte
+**WAQ // Jour 1 // Le décompte**
 
 08h. Arrivée. Entendre des bénévoles discuter. « 1200 personnes attendues ». 1200 f*cking personnes par jour, pendant 3 jours. Un vestiaire, des cocardes. Les uns derrières les autres, foule nécessairement dense, confuse et bruyante. Le ton est donné. Brace Yourself
 
@@ -62,7 +62,8 @@ What a day. C’est l’heure de l’apéro. On va reposer le cerveau.
 
 
 
-WAQ // Jour 2 // Bingo
+**WAQ // Jour 2 // Bingo**
+
 8h Nouveau matin. Les entrées s’accélèrent, l’expérience des premières 1200 personnes se fait sentir, tout le monde améliore son parcours. Le vestiaire n’y échappe pas et les bénévoles tout fiers enchainent les cintres pré-étiquetés. Comme quoi il fallait bien une journée à vide et la galère de 1200 personnes pour comprendre comment faire. 
 
 
@@ -122,7 +123,7 @@ Je ne sais pas
 Les utilisateurs ont besoin  (versus on a besoin  )
 
 
-WAQ // Jour 3 // Values First 
+**WAQ // Jour 3 // Values First**
 
 
 Conférence de clôture Kim Goodwin: “ The Values are the experience”. 
@@ -147,7 +148,7 @@ Le consentement.
 
 Interroger le propos, le questionner. Assumer les attentes. Accepter la potentialité du non. Faire savoir qu’il existe une proposition, faire savoir de quoi elle est faite. 
 
-Créer un espace pour des mots pour se donner le temps de les observer. 
+Créer un espace pour des mots, se donner le temps de les observer. 
 
 
 
