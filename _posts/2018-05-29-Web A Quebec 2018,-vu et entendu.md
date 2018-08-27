@@ -1,5 +1,5 @@
 
-# WAQ // Jour 1 // Le décompte
+## WAQ // Jour 1 // Le décompte
 
 *08h*. Arrivée. Entendre des bénévoles discuter. « 1200 personnes attendues ». 1200 f*cking personnes par jour, pendant 3 jours. Un vestiaire, des cocardes. Les uns derrières les autres, foule nécessairement dense, confuse et bruyante. Le ton est donné. Brace Yourself
 
@@ -32,10 +32,10 @@ Se dire que la première conférence du matin ce qui la rendrait intéressante c
 
 Laisser trainer mes oreilles : 
 
-- Moi je facture par paquet de 500 lignes. Je m’engage à les maintenir opérationnelles et je suis payé tous les mois
-- Ah oui je vois. Et sinon les commentaires tu fais comment tu les comptes ?
-- Oui alors les commentaires je les compte pas . J’estime à 500 lignes vraiment exécutables. 
-- Je comprends. Oui c’est bon comme modèle.
+> - Moi je facture par paquet de 500 lignes. Je m’engage à les maintenir opérationnelles et je suis payé tous les mois
+> - Ah oui je vois. Et sinon les commentaires tu fais comment tu les comptes ?
+> - Oui alors les commentaires je les compte pas . J’estime à 500 lignes vraiment exécutables. 
+> - Je comprends. Oui c’est bon comme modèle.
 
 S’étouffer en silence. 
 
@@ -60,7 +60,7 @@ What a day. C’est l’heure de l’apéro. On va reposer le cerveau.
 
 
 
-# WAQ // Jour 2 // Bingo
+## WAQ // Jour 2 // Bingo
 
 *8h Nouveau matin.* Les entrées s’accélèrent, l’expérience des premières 1200 personnes se fait sentir, tout le monde améliore son parcours. Le vestiaire n’y échappe pas et les bénévoles tout fiers enchainent les cintres pré-étiquetés. Comme quoi il fallait bien une journée à vide et la galère de 1200 personnes pour comprendre comment faire. 
 
@@ -121,7 +121,7 @@ Je ne sais pas
 Les utilisateurs ont besoin  (versus on a besoin  )
 
 
-# WAQ // Jour 3 // Values First
+## WAQ // Jour 3 // Values First
 
 
 Conférence de clôture Kim Goodwin: “ The Values are the experience”. 
