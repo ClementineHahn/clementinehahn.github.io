@@ -135,18 +135,13 @@ Web à Québec qui finit avec “Values First”. Non on ne finit pas avec ça, 
 Peut-être parce que ça obligerait à revoir le programme, peut-être parce que beaucoup de personnes n’y trouveraient plus leur place. Celles qui parlent de valeur utilisateurs mais sont surtout à la recherche de la leur. 
 
 Observer les participants, se demander ce qui les guident au quotidien. Qui dans sa vie, explicite ses valeurs ? Qui prend le temps de faire cette excavation pour interagir en cohérence ? 
-
-Passer de la réaction à la réflexion. Ne plus courir après les stimuli, les regarder arriver.
-
-Avoir un sentiment bizarre. Celui où ma vie une immense fête où je suis sobre et où je comprends mal ce que font tous ces gens bourrés, en réaction permanente à leur environnement. 
-
-Se demander quelle est ma valeur. Peut-être mettre le doigt dessus en réfléchissant à mes actions. Celles qui ont lieu quelques soient les difficultés. Même quand c’est difficile. L’explicitation. Quelle valeur est défendue par la verbalisation ? La recherche d’une ponctuelle compréhension partagée ? 
+Se demander quelle est ma valeur. Peut-être mettre le doigt dessus en réfléchissant à mes actions. Celles qui ont lieu quelques soient les difficultés. Même quand c’est difficile. L’explicitation. Quelle valeur est défendue par la verbalisation ? La recherche d’une ponctuelle compréhension partagée ? La création permanente d'un espace pour des mots ? 
 
 Le consentement. 
 
-Interroger le propos, le questionner. Assumer les attentes. Accepter la potentialité du non. Faire savoir qu’il existe une proposition, faire savoir de quoi elle est faite. 
+C'est ma valeur. Ce sur quoi je ne veux, peux jamais transiger. Interroger le propos, le questionner. Assumer les attentes. Accepter la potentialité du non. Faire savoir qu’il existe une proposition, faire savoir de quoi elle est faite. 
 
-Créer un espace pour des mots, se donner le temps de les observer. 
+
 
 
 
