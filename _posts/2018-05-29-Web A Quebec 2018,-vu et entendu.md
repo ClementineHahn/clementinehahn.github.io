@@ -16,16 +16,18 @@ Rien de révolutionnant mais quelques rappels qui font du bien :
 ⇒ «  We are biased, we are flawed ». Best defense ? « Be aware of it ». 
 
 *12h*. Pause déjeuner. Beaucoup de monde , beaucoup de bruit. Regarder en bas. 
+
 Il y a ceux qui montent par l’escalier et ceux qui montent par l’Escalator. 
-9 par l’Escalator, 1 par l’escalier ; 
-22 par l’Escalator, 2 par l’escalier ;
-31 par l’Escalator, 3 par l’escalier ;
+- 9 par l’Escalator, 1 par l’escalier ; 
+- 22 par l’Escalator, 2 par l’escalier ;
+- 31 par l’Escalator, 3 par l’escalier ;
 
 
 ![Alt Text](https://media.giphy.com/media/w9yIu38Qa6Vnq/giphy.gif)
 
 *12h15*.
-78 par l’Escalator, 8 par l’escalier. 
+- 78 par l’Escalator, 8 par l’escalier. 
+
 On va dire que 10% prennent les escaliers. 
 
 Se dire que la première conférence du matin ce qui la rendrait intéressante c’est de savoir ce qu’en ont pensé d’autres personnes. J’ai plus envie de parler de la compréhension des sujets que du sujet lui-même. Qui a appris quelque chose ? Qui était en réaction, en opposition, pourquoi ? 
