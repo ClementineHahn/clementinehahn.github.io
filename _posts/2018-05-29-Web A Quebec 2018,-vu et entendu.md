@@ -22,7 +22,7 @@ Il y a ceux qui montent par l’escalier et ceux qui montent par l’Escalator.
 31 par l’Escalator, 3 par l’escalier ;
 
 
-https://media.giphy.com/media/w9yIu38Qa6Vnq/giphy.gif
+![Alt Text](https://media.giphy.com/media/w9yIu38Qa6Vnq/giphy.gif)
 
 12h15.
 78 par l’Escalator, 8 par l’escalier. 
