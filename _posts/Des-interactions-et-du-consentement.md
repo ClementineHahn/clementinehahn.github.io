@@ -2,6 +2,8 @@
 title: Des interactions et du consentement
 ---
 
+_ceci est en construction_
+
 ## Je travaille en communication. Surement parce que c’est un sujet où beaucoup de choses m’échappent. 
 
 Surement parce que j’ai l’espoir plutôt ridicule de la rendre efficiente. On est des humains complètement dérisoires, on passe notre temps à faire plein d’erreurs, on ne comprend pas grand chose à rien et on pense qu’on se comprends. Moi ça me fascine. 
